@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kvlarrow
+- 👋 Hi, I’m Ronal
 - 👀 I’m interested in everything about coding
 - 🌱 I’m currently learning in university 17 agustus 1945 surabaya 
 - 💞️ I’m looking to collaborate on ...
