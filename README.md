@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ronal
-- 👀 I’m interested in everything about coding
+- 👀 I’m interested in everything about mobile programing and also the design
 - 🌱 I’m currently learning in university 17 agustus 1945 surabaya 
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me on
